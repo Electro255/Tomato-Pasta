@@ -1,0 +1,1 @@
+boil pasta, add tomato sauce, then add onions, pepper, garlic, sweetcorn then stir the mixture and finally sprinkle chesse on top.
